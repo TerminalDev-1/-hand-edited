@@ -1,0 +1,10 @@
+Salam
+I
+Have
+To
+For
+And
+To
+For
+I
+Have 
